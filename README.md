@@ -1,0 +1,1 @@
+# Apowersoft-Screen-Capture-Cracked
